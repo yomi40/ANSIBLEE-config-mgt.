@@ -9,3 +9,5 @@ everyone was so happy and enjoy
 theres a lot family misunderstanding during the burial
 God is good
 all the time 
+wife just call me now
+abi oooo
