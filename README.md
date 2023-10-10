@@ -7,3 +7,5 @@ it was a success
 i spent roughly £2000 for my mother burial
 everyone was so happy and enjoy
 theres a lot family misunderstanding during the burial
+God is good
+all the time 
