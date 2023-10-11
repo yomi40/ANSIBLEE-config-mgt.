@@ -11,3 +11,5 @@ God is good
 all the time 
 wife just call me now
 abi oooo
+i love Jesus
+yessssss
